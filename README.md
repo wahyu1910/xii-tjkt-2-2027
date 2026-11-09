@@ -1,0 +1,2 @@
+# xii-tjkt-2-2027
+12 tjkt 02 SMK YASMIDA AMBARAWA
